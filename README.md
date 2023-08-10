@@ -5,8 +5,8 @@
 - At Dartmouth, I am the Co-Chair of Bait and Bullet, and I am also a Senator in Student Government
 
 ### My Hobbies
-- I love to go fishing and enjoy the nature around Hanover
-- I play violin in a band called Bleu Moose, and also play in the Dartmouth Symphony Orchestra!
+- I love to go fishing and hunting! I often spend my time in nature around Hanover
+- I play violin in a band called Blue Moose and also play in the Dartmouth Symphony Orchestra!
 - I am an avid gardener back home and keep some fun dorm plants
 - I am a brother in the Zeta Psi fraternity at Dartmouth
 - My favorite video game is Civilization 5
