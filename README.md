@@ -1,6 +1,6 @@
 # Hi! Welcome to my Github!
 ### About Me
-- My name is Matthew Kim '25, and I am a **Computer Science major** from Texas at Dartmouth College
+- My name is Matthew Kim '25, and I am a **Computer Science major** from Austin, Texas at Dartmouth College
 - I also plan on minoring in **Environmental Studies** and **Chinese**.
 - At Dartmouth, I am the Co-Chair of Bait and Bullet, and I am also a Senator in Student Government
 
