@@ -2,7 +2,7 @@
 ### About Me
 - My name is Matthew Kim '25, and I am a **Computer Science and Chinese Language Double Major** from Austin, Texas at Dartmouth College
 - I am also minoring in **Environmental Studies**
-- I am currently studying abroad in Taiwan where I am learning Chinese for 6 months!
+- I studied in Taiwan where I learned Chinese from September 2023 to February 2024!
 - At Dartmouth, I am the Co-Chair of Bait and Bullet, and I am also a Senator in Student Government
 
 ### My Hobbies
