@@ -15,4 +15,4 @@
 ### Contact Information
 - School Email: Matthew.J.Kim.25@Dartmouth.edu
 - Personal Email: Mattjkim.me@gmail.com
-- Instagram: @_math_u_
+- Instagram: @ _math_u_
